@@ -1,2 +1,0 @@
-# MIdteerm
-Albina
